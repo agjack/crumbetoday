@@ -8,8 +8,8 @@
 
 ### Topping
 1. 250g cold butter
-1. 200g flour
-1. 200g golden caster sugar. 
+1. 160g flour
+1. 160g golden caster sugar. 
 
 ## Method
 1. Heat the oven to 180°C
